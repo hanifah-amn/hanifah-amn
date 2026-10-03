@@ -2,7 +2,7 @@
 
 I'm **Hanifah**
 
-🌱 Currently studying in Informatics major
+🌱 Graduated from Informatics major in May 2025
 
 <p align="left">
 <a href="https://github.com/hanifah-amn">
